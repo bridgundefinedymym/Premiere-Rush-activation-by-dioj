@@ -1,0 +1,1 @@
+# Premiere-Rush-activation-by-dioj
